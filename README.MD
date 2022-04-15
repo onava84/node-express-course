@@ -6,6 +6,8 @@
 
 #### Support
 
+Oscar
+
 Find the App Useful? [You can always buy me a coffee](https://www.buymeacoffee.com/johnsmilga)
 
 #### Contents
